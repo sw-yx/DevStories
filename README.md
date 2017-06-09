@@ -5,4 +5,4 @@ Self Taught
 - Google, OCW https://news.ycombinator.com/item?id=14514686
 
 Bootcamp
-- 
+- Post 3 yrs https://news.ycombinator.com/item?id=14518093
